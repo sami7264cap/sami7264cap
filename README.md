@@ -2,7 +2,6 @@
 - 👀 I’m interested in programming,webdev.......
 - 🌱 I’m currently starting to learn basics 
 - 💞️ I’m looking to collaborate for mutual growth
-- 📫 contact me @sammi.manzoor ig
 - 😄 Pronouns:he/him
 - ⚡ Fun fact: i am a noob
 
